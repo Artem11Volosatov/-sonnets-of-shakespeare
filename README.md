@@ -14,3 +14,11 @@ Let those whom Nature hath not made for store,
 Harsh featureless and rude, barrenly perish:
 Look, whom she best endow'd she gave the more;
 Which bounteous gift thou shouldst in bounty cherish:
+
+She carved thee for her seal, and meant thereby
+Thou shouldst print more, not let that copy die.
+
+На землю упади посевом скорым,
+В рост, в рост направь зерно, скорей, скорей;
+И после из зерна, умрёшь в котором,
+Ты оживёшь, так торопись, успей.
